@@ -1,4 +1,4 @@
-*Security Researcher and Penetration Tester*
+Security Researcher and Penetration Tester
 
 
 📫 Mail : [*kevin.valerio83@gmail.com*](mailto:kevin.valerio83@gmail.com) 
