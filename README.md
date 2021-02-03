@@ -1,7 +1,7 @@
 Security Researcher and Penetration Tester
 
 
-📫 Mail : [*kevin.valerio83@gmail.com*](mailto:kvalerio@protonmail.com) 
+📫 Mail : [*kvalerio@protonmail.com*](mailto:kvalerio@protonmail.com) 
 
 📫 LinkedIn [*kevin-valerio*](https://www.linkedin.com/in/kevin-valerio/)
 
