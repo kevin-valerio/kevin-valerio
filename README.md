@@ -1,4 +1,4 @@
-Security Researcher and Penetration Tester
+Developer and security researcher
 
 
 📫 Mail : [kvalerio@protonmail.com](mailto:kvalerio@protonmail.com) 
