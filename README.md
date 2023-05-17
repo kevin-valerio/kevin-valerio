@@ -1,4 +1,3 @@
-Security researcher
 
 📫 [kevin-valerio](https://www.linkedin.com/in/kevin-valerio/) - [kvalerio@protonmail.com](mailto:kvalerio@protonmail.com) 
 
