@@ -1,1 +1,1 @@
-📫  [kvalerio hat🎩 protonmail com](mailto:kvalerio[hat]protonmail.com)
+📫  [kvalerio 🎩 protonmail com](mailto:kvalerio[🎩]protonmail.com)
